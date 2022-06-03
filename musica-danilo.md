@@ -1,3 +1,7 @@
+# Musica: Psycho (feat. Ty Dolla $ign)
+
+## Banda: Post Malone
+
 Damn, my AP goin' psycho, lil' mama bad like Michael
 Can't really trust nobody with all this jewelry on you
 My roof look like a no-show, got diamonds by the boatload
