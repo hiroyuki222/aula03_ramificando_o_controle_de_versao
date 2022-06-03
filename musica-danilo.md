@@ -57,4 +57,4 @@ Come with the Tony Romo for clowns and all the bozos
 My AP goin' psycho, lil' mama bad like Michael
 Can't really trust nobody with all this jewelry on you
 My roof look like a no-show, got diamonds by the boatload
-Don't act like you my friend when I'm rollin' through my ends, though
+Don't act like you my friend when I'm rollin' through my ends, though.
